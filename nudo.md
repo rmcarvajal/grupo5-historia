@@ -1,0 +1,1 @@
+Después de mucha espera, el emperador dio la tan deseada orden de dar inicio a la batalla en contra del reino Starford, los valientes guerreros salieron a dominar las calles del reino enemigo, quienes perdieron sin más

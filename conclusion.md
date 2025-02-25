@@ -1,1 +1,6 @@
 Y así, con el sol ocultándose en el horizonte, nuestro protagonista dio un último vistazo al camino que había recorrido. Había enfrentado miedos, perdido y encontrado amigos, y descubierto en su interior una fuerza que nunca imaginó tener. Ahora, con el viento susurrando promesas de nuevos comienzos, sonrió. No sabía con certeza qué le deparaba el futuro, pero por primera vez en mucho tiempo, estaba list@ para averiguarlo.
+Cuando la bestia cayó, su último aliento ardiente se extinguió en el viento helado de la montaña. Los dos caballeros, agotados y cubiertos de cenizas, se miraron en silencio. Durante años, habían sido rivales: disputaban tierras, honor y la lealtad del rey. Pero ante el dragón, sus espadas habían luchado como una sola.
+
+De regreso al pueblo, los vítores de la gente no pudieron borrar el peso de lo aprendido. No eran tan distintos después de todo. Se habían salvado mutuamente más veces de las que podían contar. Quizás la verdadera batalla nunca había sido entre ellos, sino contra su propio orgullo.
+
+Sin decir palabra, desmontaron y se estrecharon las manos. No serían amigos, tal vez nunca, pero la sangre y el fuego habían forjado algo más fuerte que la enemistad: respeto. Y en tiempos de guerra, eso valía más que cualquier título.

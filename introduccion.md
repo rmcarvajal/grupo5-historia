@@ -6,3 +6,4 @@ De la pared salio una serpiente infinitamente larga con 3 ojos, la cual se comun
     -"¿Por que le pido ayuda a un perro viejo? Bueno, Ruffini, esto es porque hoy en dia solo tu tienes un alma pura que no conoce los pecados de ver reels en instagram o hablar de
     politica."
 Ruffini no estaba prestando atencion. Su pequeño cerebro no contaba con la capacidad para tomar tan importante mision, las palabras entraban en un oido y salian del otro.
+Habia una niña que se llamaba Maria Jose iba caminando por el parque y se cayo

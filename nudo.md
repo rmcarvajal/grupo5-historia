@@ -1,1 +1,10 @@
-Después de mucha espera, el emperador dio la tan deseada orden de dar inicio a la batalla en contra del reino Starford, los valientes guerreros salieron a dominar las calles del reino enemigo, quienes perdieron sin más:i
+Después de mucha espera, el emperador dio la tan deseada orden de dar inicio a la batalla en contra del reino Starford, los valientes guerreros salieron a dominar las calles del reino enemigo, quienes perdieron sin más:
+En un pueblo pequeño, Emma descubre un antiguo diario que perteneció a su abuela, quien desapareció misteriosamente cuando era joven. A medida que lee las páginas amarillentas, empieza a desentrañar secretos oscuros sobre la familia que su abuela había ocultado. Sin embargo, al intentar investigar más, alguien comienza a seguirla, y las pistas que encuentra la conducen a un viejo almacén en las afueras del pueblo, donde descubre que los misterios de su familia están más relacionados con el pueblo de lo que pensaba. Pero cuando está a punto de revelar la verdad, alguien cercano a ella la traiciona, poniendo en peligro su vida y todo lo que creía saber sobre su familia.
+
+Union de ambas historias:
+
+En medio de la devastación que dejó la guerra entre el Imperio y el reino de Starford, muchos secretos quedaron enterrados bajo los escombros de la derrota. Lo que alguna vez fue un próspero dominio se convirtió en un conjunto de ruinas y sombras donde solo los susurros del pasado parecían habitar.
+
+Siglos después, en un pequeño pueblo, Emma descubrió un antiguo diario que había pertenecido a su abuela, una mujer envuelta en un misterio que había comenzado mucho antes de su desaparición. A medida que leía las páginas gastadas por el tiempo, encontró referencias a la guerra perdida de Starford y a un linaje olvidado que alguna vez desafió al emperador.
+
+Pronto, la búsqueda de la verdad se convirtió en algo peligroso. Alguien no quería que Emma siguiera escarbando en el pasado. Las pistas la llevaron a un viejo almacén en las afueras del pueblo, donde descubrió que la historia de su familia estaba ligada a traiciones, pactos secretos y los últimos vestigios de un reino condenado. Pero justo cuando estaba a punto de revelar la verdad, una traición cercana amenazó con silenciarla para siempre.
